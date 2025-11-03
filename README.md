@@ -1,2 +1,2 @@
 # hd
-https://myapps.classlink.com/
+https://www.easyfun.gg/cloud-games/roblox.html
