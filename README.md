@@ -1,2 +1,2 @@
 # hd
-https://jklm.fun/
+https://myapps.classlink.com/
